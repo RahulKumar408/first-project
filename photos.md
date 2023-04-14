@@ -2,3 +2,5 @@
 -![image](https://user-images.githubusercontent.com/76462870/221657708-d92c647a-dce3-4483-9ae0-f0cd4c4febc7.png)
 -![image](https://user-images.githubusercontent.com/76462870/221657769-db6c8099-4083-4b01-bd56-8065fe575e12.png)
 -![image](https://user-images.githubusercontent.com/76462870/221657826-067aaeba-29e4-482e-a1ec-a20103cf073d.png)
+![2degree](https://user-images.githubusercontent.com/76462870/232162087-82f6cea0-642a-49f5-8536-7742b17b3aa9.jpg)
+![adhaya](https://user-images.githubusercontent.com/76462870/232162114-2f65350d-c162-49b4-85b0-e5ed325b8630.jpg)
